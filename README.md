@@ -14,4 +14,4 @@
 - Cyber Sleuth: I love solving cyber mysteries and have a knack for uncovering vulnerabilities in systems.
 - My go-to coffee order is an iced Americano, the perfect fuel for long coding sessions.
 - I enjoy a mix of K-pop, R&B, and UK drill beats, keeping my playlists diverse and energetic.
-- When I need aM NOT CODING, you'll often find me lost in the pages of a good book.
+- When I need i'm not coding, you'll often find me lost in the pages of a good book.
